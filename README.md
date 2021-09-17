@@ -1,4 +1,4 @@
 # Halo semua! 
 
 
-Perkenalkan nama saya **Walter Aluman **.\
+Perkenalkan nama saya **Walter Aluman**
